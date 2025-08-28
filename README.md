@@ -1,2 +1,0 @@
-# my-web-site-
-BGMI TOUNAMENT WEBSITE 
